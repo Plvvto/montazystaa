@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- Member of the Administration | @Genesis-Zone
+- ⚖️ Member of the Administration at ```Genesis-Zone```
 
 <!--
 **montazystaa/montazystaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
