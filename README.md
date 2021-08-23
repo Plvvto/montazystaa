@@ -9,7 +9,7 @@
 **Contact me**
 
 - Discord: Montażysta#5758
-- E-mail: business.montazysta@gmail.com
+- E-mail: contact.montazysta@gmail.com / business.montazysta@gmail.com
 <!--
 **montazystaa/montazystaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
