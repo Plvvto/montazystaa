@@ -4,7 +4,7 @@
 
 **Working at:**
 
-- ⚖️ • Discord Server Manager | @```Genesis-Zone``` www.genesis-zone.com
+- ⚖️ Discord Server Manager | @```Genesis-Zone``` www.genesis-zone.com
 
 **Contact me**
 
