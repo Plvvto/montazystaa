@@ -4,7 +4,7 @@
 
 **Working at:**
 
-- ⚖️ Member of the Administration at ```Genesis-Zone``` www.genesis-zone.com
+- ⚖️ Discord Server Manager at ```@Genesis-Zone``` www.genesis-zone.com
 
 **Contact me**
 
