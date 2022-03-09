@@ -3,8 +3,8 @@
 
 
 **Working at:**
-- 🎥 Chief Executive Officer (CEO) | `www.montazysta-studio.pl`
-- ⚖️ Discord Server Manager | @```Genesis-Zone``` www.genesis-zone.com
+- 🎥 Chief Executive Officer (CEO) | `montazysta-studio.pl`
+- ⚖️ Discord Server Manager | @```Genesis-Zone```
 
 **Contact me**
 
