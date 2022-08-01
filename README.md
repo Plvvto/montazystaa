@@ -1,11 +1,5 @@
 ### Hi there 👋
 
-
-
-**Working at:**
-- 🎥 Chief Executive Officer (CEO) | `montazysta-studio.pl`
-- ⚖️ Discord Server Manager | @```Genesis-Zone```
-
 **Contact me**
 
 - Discord: Montażysta#2115
